@@ -1,0 +1,2 @@
+# uyas
+Perjalanan IT 
